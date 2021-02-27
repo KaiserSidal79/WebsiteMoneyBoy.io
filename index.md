@@ -12,3 +12,5 @@ Money Boy (* 27. Juni 1981 in Wien; auch bekannt als kurz Mbeezy; zwischenzeitli
 Wie Money Boy sagte:
 
 > Eine Bitch muss für mich bügeln und so
+
+<img src="https://fstvls.s3.amazonaws.com/69/68963.jpg"/>
