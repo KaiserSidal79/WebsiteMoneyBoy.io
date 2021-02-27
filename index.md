@@ -10,4 +10,5 @@ Money Boy (* 27. Juni 1981 in Wien; auch bekannt als kurz Mbeezy; zwischenzeitli
 * Crispy
 
 Wie Money Boy sagte:
-> "Eine Bitch muss für mich bügeln und so" 
+
+> Eine Bitch muss für mich bügeln und so
