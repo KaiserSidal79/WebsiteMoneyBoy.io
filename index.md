@@ -8,3 +8,4 @@ Money Boy (* 27. Juni 1981 in Wien; auch bekannt als kurz Mbeezy; zwischenzeitli
 * Cool
 * Spicey
 * Crispy
+### "Eine Bitch muss für mich bügeln und so" ~ Der Boy
